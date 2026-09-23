@@ -2,7 +2,7 @@
   <img src="https://i.ibb.co/6RQmMNMc/Untitled156-20260923053745.png" width="800" alt="Banner">
 </p>
 
-<span style="color:red">spam account :] follow https:/github.com/lemonsimon instead!</span>
+spam account :] follow https:/github.com/lemonsimon instead !
 
 <p align="center">
   <img src="https://i.ibb.co/nsLs6mwM/Tumblr-l-616649612208675.gif" width="150">
